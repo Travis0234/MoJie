@@ -18,7 +18,7 @@
 ### 📖 品牌介绍
 * **官方名称：** 魔戒
 * **官网：** [魔戒 - Register](https://www.mojie.me/#/register?code=2KF3bpaz)
-* **我的邀请码：** [https://www.mojie.me/#/register?code=lufOTZPG](https://www.mojie.me/#/register?code=lufOTZPG)
+* **我的邀请码：** [https://dub.sh/Lzvqv8h](https://dub.sh/Lzvqv8h)
 * **行业地位：** **年头很久的老牌直连机场**，**首创不限时套餐**！价格实惠，**不用赶着用完流量**！线路是直连，没有专线那么顶，但胜在**稳定经营多年、套餐灵活**。日常追剧、上网够用，适合想**慢慢用、不想被月付绑住**的朋友。
 * **博客评测：** [{直连} 魔戒 低价直连机场](https://travisblog.qzz.io/article/mojie-review)
 
